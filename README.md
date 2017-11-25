@@ -1,1 +1,1 @@
-这是一个djando初学者的github。
+杩欐槸涓�浣嶅垵瀛﹁�呯殑github
